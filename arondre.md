@@ -1,1 +1,1 @@
-Arondre Curtis Shelton
+Arondre Shelton
